@@ -1,1 +1,1 @@
-This is a group done by Clinton Nyakoe and Josephat Kahihia
+This is a group project done by Clinton Nyakoe and Josephat Kahihia
